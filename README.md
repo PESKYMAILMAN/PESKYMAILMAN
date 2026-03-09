@@ -8,14 +8,13 @@
 𝐼𝓂𝒶𝑔𝒾𝓃𝑒 𝒶 𝓌𝑜𝓇𝓁𝒹 𝓌𝒾𝓉𝒽𝑜𝓊𝓉 𝓎𝑜𝓊."
 </p>
 
-
 <p align="center">
 
 </p>
 
 <div align="center">
   
-  ![sneo_angel_2](https://github.com/user-attachments/assets/c234040b-d04c-4edd-abde-8d920f44eadf)
+  ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
 
 </div>
 
