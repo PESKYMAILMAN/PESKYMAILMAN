@@ -10,7 +10,7 @@
 
 
 <p align="center">
-<img width="736" height="875" alt="2zvfoa" src="https://github.com/user-attachments/assets/47ce36c2-ea3a-46e5-9098-49b4480292bf" />
+
 </p>
 
 <div align="center">
