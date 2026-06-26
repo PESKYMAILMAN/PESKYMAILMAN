@@ -38,11 +38,10 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 $${\Huge\color{#c92257}\textbf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
 
-<h3>
-  <table><tr><td><span style="color:#c92257"><b><i>
+<div style="color: #c92257; font-size: 1.17em; font-weight: bold; font-style: italic; line-height: 1.5;">
   Usually I'm sitting offtab/AFK, so it can be pretty difficult to start a conversation with me... Buuuuut I'm still very social person!! I would LOVELY talk with someone about stuff I'm interested in!
-  </i></b></span></td></tr></table>
-</h3>
+</div>
+
 </details>
 
 
