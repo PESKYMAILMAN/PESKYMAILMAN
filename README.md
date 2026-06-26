@@ -1,6 +1,7 @@
 
 
 
+
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=892664&center=true&vCenter=true&width=435&lines=I've+been+searching+for+you%2C;EVERY+NIGHT+AND+DAY+TOO%2C;soon+you'll+be+before+me%2C;I'll+give+you+my+soul+free!" alt="Typing SVG" /></a>
@@ -52,7 +53,8 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 
 
-<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="101" height="57" alt="tumblr_0a33828ba521fb0160f75892f8a12ea2_49b2a85e_250" src="https://github.com/user-attachments/assets/33afa86d-57c6-4f49-b4d9-cf3f98f3431f" />
+<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="101" height="57" alt="tumblr_0a33828ba521fb0160f75892f8a12ea2_49b2a85e_250" src="https://github.com/user-attachments/assets/33afa86d-57c6-4f49-b4d9-cf3f98f3431f" /> <img width="101" height="57" alt="tumblr_30aaf3f9554f61c68d1afc78b260d085_70c03dfa_250" src="https://github.com/user-attachments/assets/d6f16a50-f95e-440c-9302-ff0119a8b7e6" /> <img width="101" height="57" alt="tumblr_57d1ff06bc09ef9921e198f0ceb93933_096ab692_250" src="https://github.com/user-attachments/assets/349b0beb-9b47-482c-9e8e-e0cef7193d91" />
+
 
 
 
