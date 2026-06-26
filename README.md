@@ -10,7 +10,7 @@
 
 
 
-
+$${\color{#FF5733}\textsf{Custom Hex Orange Text}}$$
 
 
   
