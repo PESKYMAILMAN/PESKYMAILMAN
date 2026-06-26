@@ -45,6 +45,8 @@ $${\Huge\color{#c92257}\textbf{WIP because I'm LAZZYYY}}$$
 
 $${\Huge\color{#c92257}\textbf{Some of my info on pronounscc}}$$
 
+$${\Huge\color{#c92257}\textbf{And don't forget about strawpage}}$$
+
 $${\color{#c92257}\textbf{I'm so sorry :(}}$$
 
 $${\Huge\color{#c92257}\textbf{}}$$
