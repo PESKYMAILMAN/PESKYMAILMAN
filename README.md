@@ -98,5 +98,5 @@ $${\Huge\color{#c92257}\textbf{}}$$
 <div align="center">
 <img width="80" height="80" alt="tumblr_9a6db8f1e260319a699b4f9967734a3b_eb485f6a_250" src="https://github.com/user-attachments/assets/60fc7e4b-a14e-42cd-b5dd-937819c6b7dc" />
 <br>
-You're Always Will Be Loved. Stay Safe.
+You Will Be Always Loved. Stay Safe.
 </div>
