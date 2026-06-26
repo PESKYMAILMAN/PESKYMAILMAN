@@ -34,7 +34,7 @@ $${\color{#E3FDC0FF}\textsf{ღ︎⁔︎🖋}}{\color{#c92257}\textsf{𝗪𝟐�
 <details>
 <summary><h2>$${\color{#c92257}\textsf{ 𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 𝗕𝗬𝗜!}}$$</h2></summary>
 
-$${\color{#c92257}\textsf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
+<h2>$${\color{#c92257}\textsf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$</h2>
 
 </details>
 
