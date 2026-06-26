@@ -1,3 +1,4 @@
+
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=892664&center=true&vCenter=true&width=435&lines=I've+been+searching+for+you%2C;EVERY+NIGHT+AND+DAY+TOO%2C;soon+you'll+be+before+me%2C;I'll+give+you+my+soul+free!" alt="Typing SVG" /></a>
@@ -49,7 +50,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 
 
-
+<img width="300" height="40" alt="0255-glowinghearts" src="https://github.com/user-attachments/assets/e6e403ca-c49c-472c-a3ef-8d3d2dc247c0" />
   
   ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
 
