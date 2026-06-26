@@ -27,7 +27,7 @@
 
 <div align="center">
 
-$${\color{#e3ffb9}\textsf{ღ︎⁔︎🖋}}{\color{#c92257}\textsf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\color{#b36db0}\textsf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$ 
+$${\color{#ffb866}\textsf{ღ︎⁔︎🖋}}{\color{#c92257}\textsf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\color{#b36db0}\textsf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$ 
 
 
 
