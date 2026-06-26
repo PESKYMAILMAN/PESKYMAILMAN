@@ -12,6 +12,14 @@
 
 
 <div align="center">
+  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=E3FDC0&center=true&vCenter=true&width=435&lines=Laws+of+nature+bending%2C;our+love+never+ending%2C;ancient+love+long+ago%2C;i+lose+all+control!" alt="Typing SVG" /></a>
+
+</div>
+
+
+
+<div align="center">
 
 $${\color{#e3ffb9}\textsf{ღ︎⁔︎🖋𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$
 
