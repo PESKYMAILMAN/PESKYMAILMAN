@@ -17,6 +17,17 @@
 
 $${\color{#e3ffb9}\textsf{ღ︎⁔︎🖋𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$
 
+<details>
+<summary>
+  <div style="display: inline;">
+    <span style="color: #ff5555;">▶</span> 
+    <b><span style="color: #ff5555;">Мой цветной спойлер</span></b>
+  </div>
+</summary>
+
+Скрытый текст здесь.
+
+</details>
 
   
   ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
