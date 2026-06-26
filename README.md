@@ -51,6 +51,10 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 
 
+<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="150" height="50" alt="3461812ge702797h3" src="https://github.com/user-attachments/assets/4970ed3d-d8fa-4ef0-8fde-b55a8ecc994a" />
+
+
+
 <img width="300" height="40" alt="0255-glowinghearts" src="https://github.com/user-attachments/assets/e6e403ca-c49c-472c-a3ef-8d3d2dc247c0" /> <img width="300" height="40" alt="a39" src="https://github.com/user-attachments/assets/ef4d86a9-909a-4c3d-925f-fba9d36c1835" /> <img width="300" height="40" alt="0254-strawberrygradient" src="https://github.com/user-attachments/assets/ade5c3cf-6f9c-42cb-ae38-4a734937dc3e" />
 
   
