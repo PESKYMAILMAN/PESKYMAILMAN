@@ -89,3 +89,12 @@ $${\Huge\color{#c92257}\textbf{}}$$
 <div align="center">
 <img width="148" height="125" alt="tumblr_2e82a6375b85df20426c550a84fa4577_48fcfbfe_250" src="https://github.com/user-attachments/assets/7bc4bf2b-f1f2-42d1-87f0-dbadde0d98ca" /><img width="148" height="125" alt="tumblr_2e82a6375b85df20426c550a84fa4577_48fcfbfe_250" src="https://github.com/user-attachments/assets/7bc4bf2b-f1f2-42d1-87f0-dbadde0d98ca" /><img width="148" height="125" alt="tumblr_2e82a6375b85df20426c550a84fa4577_48fcfbfe_250" src="https://github.com/user-attachments/assets/7bc4bf2b-f1f2-42d1-87f0-dbadde0d98ca" /><img width="148" height="125" alt="tumblr_2e82a6375b85df20426c550a84fa4577_48fcfbfe_250" src="https://github.com/user-attachments/assets/7bc4bf2b-f1f2-42d1-87f0-dbadde0d98ca" /><img width="148" height="125" alt="tumblr_2e82a6375b85df20426c550a84fa4577_48fcfbfe_250" src="https://github.com/user-attachments/assets/7bc4bf2b-f1f2-42d1-87f0-dbadde0d98ca" />
 </div>
+
+
+<br>
+
+<div align="center">
+<img width="160" height="160" alt="tumblr_9a6db8f1e260319a699b4f9967734a3b_eb485f6a_250" src="https://github.com/user-attachments/assets/60fc7e4b-a14e-42cd-b5dd-937819c6b7dc" />
+<br>
+You're Always Will Be Loved. Stay Safe.
+</div>
