@@ -39,10 +39,10 @@ $${\Huge\color{#c92257}\textbf{}}$$
 $${\Huge\color{#c92257}\textbf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
 
 <h3>
-  <table><tr><td><span style="color:#c92257"><b>
-  𝑈𝑠𝑢𝑎𝑙𝑙𝑦 𝐼'𝑚 𝑠𝑖𝑡𝑡𝑖𝑛𝑔 𝑜𝑓𝑓𝑡𝑎𝑏/𝐴𝐹𝐾, 𝑠𝑜 𝑖𝑡 𝑐𝑎𝑛 𝑏𝑒 𝑝𝑟𝑒𝑡𝑡𝑦 𝑑𝑖𝑓𝑓𝑖𝑐𝑢𝑙𝑡 𝑡𝑜 𝑠𝑡𝑎𝑟𝑡 𝑎 𝑐𝑜𝑛𝑣𝑒𝑟𝑠𝑎𝑡𝑖𝑜𝑛 𝑤𝑖𝑡ℎ 𝑚𝑒... 𝐵𝑢𝑢𝑢𝑢𝑡 𝐼'𝑚 𝑠𝑡𝑖𝑙𝑙 𝑣𝑒𝑟𝑦 𝑠𝑜𝑐𝑖𝑎𝑙 𝑝𝑒𝑟𝑠𝑜𝑛!! 𝐼 𝑤𝑜𝑢𝑙𝑑 𝐿𝑂𝑉𝐸𝐿𝑌 𝑡𝑎𝑙𝑘 𝑤𝑖𝑡ℎ 𝑠𝑜𝑚𝑒𝑜𝑛𝑒 𝑎𝑏𝑜𝑢𝑡 𝑠𝑡𝑢𝑓𝑓 𝐼'𝑚 𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡𝑒𝑑 𝑖𝑛!
-  </b></span></td></tr></table>
-<h3>
+  <table><tr><td><span style="color:#c92257"><b><i>
+  Usually I'm sitting offtab/AFK, so it can be pretty difficult to start a conversation with me... Buuuuut I'm still very social person!! I would LOVELY talk with someone about stuff I'm interested in!
+  </i></b></span></td></tr></table>
+</h3>
 </details>
 
 
