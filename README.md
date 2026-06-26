@@ -36,9 +36,10 @@ $${\Huge\color{#E3FDC0FF}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{
 
 $${\Huge\color{#c92257}\textbf{}}$$
 
-$${\Huge\color{#c92257}\textbf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
+$${\Huge\color{#c92257}\textbf{WIP because I'm LAZZYYY}}$$
 
-$\color{#c92257} \text{Usually I'm sitting offtab/AFK, so it can be pretty difficult to start a conversation with me... Buuuuut I'm still very social person!! I would LOVELY talk with someone about stuff I'm interested in!}$
+$${\Huge\color{#c92257}\textbf{Some of my info on pronounscc}}$$
+
 
 </details>
 
