@@ -34,6 +34,8 @@ $${\Huge\color{#E3FDC0FF}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{
 <details>
 <summary>$${\Huge\color{#c92257}\textbf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 𝗕𝗬𝗜!}}$$</summary>
 
+$${\Huge\color{#c92257}\textbf{}}$$
+
 $${\Huge\color{#c92257}\textbf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
 
 $${\Huge\color{#c92257}\textbf{}}$$
