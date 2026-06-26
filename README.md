@@ -51,7 +51,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 
 
-<img width="300" height="40" alt="0255-glowinghearts" src="https://github.com/user-attachments/assets/e6e403ca-c49c-472c-a3ef-8d3d2dc247c0" /> <img width="300" height="40" alt="a39" src="https://github.com/user-attachments/assets/ef4d86a9-909a-4c3d-925f-fba9d36c1835" />
+<img width="300" height="40" alt="0255-glowinghearts" src="https://github.com/user-attachments/assets/e6e403ca-c49c-472c-a3ef-8d3d2dc247c0" /> <img width="300" height="40" alt="a39" src="https://github.com/user-attachments/assets/ef4d86a9-909a-4c3d-925f-fba9d36c1835" /> <img width="300" height="40" alt="0254-strawberrygradient" src="https://github.com/user-attachments/assets/ade5c3cf-6f9c-42cb-ae38-4a734937dc3e" />
 
   
   ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
@@ -60,6 +60,6 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31577y2qu5bnsuxiohla755yhpuy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=0400ff&bar_color_cover=false"> <img width="300" height="40" alt="0254-strawberrygradient" src="https://github.com/user-attachments/assets/ade5c3cf-6f9c-42cb-ae38-4a734937dc3e" />
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31577y2qu5bnsuxiohla755yhpuy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=0400ff&bar_color_cover=false">
   </a>
 </p>
