@@ -66,7 +66,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 
 <div>
-<img width="721" height="226" alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/8790f8a8-79b7-4154-bd32-a2e81fd11bf7" />
+<img width="621" height="26" alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/8790f8a8-79b7-4154-bd32-a2e81fd11bf7" />
 </div>
   
   ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
