@@ -42,7 +42,7 @@ $${\Huge\color{#c92257}\textbf{Some of my info on pronounscc}}$$
 
 $${\color{#c92257}\textbf{I'm so sorry :(}}$$
 
-$${\Huge\color{#c92257}\textbf{Some of my info on pronounscc}}$$
+$${\Huge\color{#c92257}\textbf{}}$$
 
 
 </details>
