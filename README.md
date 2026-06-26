@@ -27,14 +27,14 @@
 
 <div align="center">
 
-$${\color{#ffb866}\textsf{ღ︎⁔︎🖋}}{\color{#c92257}\textsf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\color{#b36db0}\textsf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$ 
+$${\color{#E3FDC0FF}\textsf{ღ︎⁔︎🖋}}{\color{#c92257}\textsf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\color{#b36db0}\textsf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$ 
 
 
 
 <details>
-<summary>$${\color{#e3ffb9}\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 𝗕𝗬𝗜!}}$$</summary>
+<summary>$${\color{#c92257}\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 𝗕𝗬𝗜!}}$$</summary>
 
-
+$${\color{#c92257}\textsf{𝐶𝑎𝑙𝑙 𝑚𝑒 𝑊𝑟𝑎𝑡ℎ!}}$$
 
 </details>
 
