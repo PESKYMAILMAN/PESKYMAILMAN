@@ -18,6 +18,12 @@
 </div>
 
 
+<p align="center">
+<img width="450" height="60" alt="Blinkie green its TV time!" src="https://github.com/user-attachments/assets/2a5fcba7-eb82-472b-a5be-15b9070a169d" />
+</p>
+
+
+
 
 <div align="center">
 
