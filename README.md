@@ -119,7 +119,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 <br>
 
 <div>
-<img alt="tumblr_7746996e6d9fe091e792c7f57fec6f11_807f9678_540" src="https://github.com/user-attachments/assets/ce2db1da-dabe-475d-9df8-b6d4a2aa6951" />
+
 </div>
 
 <br>
