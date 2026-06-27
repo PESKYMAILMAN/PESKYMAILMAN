@@ -64,6 +64,8 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 #### ❤️ C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk! C+H still encouraged even when I have DNI stated.
 
+#### ❤️ Tonetags not needed but appreciated! Will I use them or not - depends on your choice.
+
 ⁉️ My humor isn't for everyone. I can be rude or clingy, but only as a JOKE. Just tell me if it makes you uncomfortable.
 
 ⁉️ English is NOT my first language, so expect a lot of typos and bad grammar from me.
