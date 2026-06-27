@@ -117,8 +117,8 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 <br>
 
-<div>
-<img alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/8790f8a8-79b7-4154-bd32-a2e81fd11bf7" />
+<div align="center">
+<img alt="tumblr_dd80463cafa788324b6f09834d93675c_56f232e2_540" src="https://github.com/user-attachments/assets/8335c165-3469-4780-b4e3-11045c11baac" />
 </div>
 
 <br>
