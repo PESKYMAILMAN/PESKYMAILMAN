@@ -85,7 +85,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 <br>
 
-<p align="center"><a href="https://mrwrath.straw.page/"><img  alt="Без названия220_20260627151337" src="https://github.com/user-attachments/assets/8bbc00c5-f014-4243-9e57-065d1a2d8bd7" hspace="60" /></a><a href="https://mrwrath.atabook.org/"><img  alt="Без названия220_20260627151322" src="https://github.com/user-attachments/assets/2547f0b8-3060-4e31-8f18-59368def8a6e" hspace="60" /></a></p>
+
 
 <br>
 
