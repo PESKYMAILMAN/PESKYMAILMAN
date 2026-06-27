@@ -74,6 +74,8 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 ⁉️ I can be very distant and busy sometimes. I'm not ignoring anyone on purpose.
 
+⁉️ I'm still kinda new to all labeling/system/fictkin and etc stuff, I'm really sorry if I'm gonna make mistakes/mispronoun you because of that!! :(
+
 📌 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
 
 📌 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune(up to 4th chapter for now); Nullscape; 8:11.
