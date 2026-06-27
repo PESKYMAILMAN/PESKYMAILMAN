@@ -35,7 +35,7 @@
 <br>
 <br>
 
-<p align="center"><img alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/db68fb9d-d178-4731-a886-6e11b858755f" /></p>
+<p align="center"><img width="521" height="26" alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/12a4914c-fc49-4827-a6bd-c0bfe9494083" /></p>
 
 <div align="center">
 <br>
