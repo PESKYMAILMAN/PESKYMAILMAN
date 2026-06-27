@@ -31,7 +31,6 @@
 </p>
 <br>
 
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN&label=TV%20Lovers%20%E2%99%A1&labelColor=%23892664&countColor=%23c92257&style=plastic&labelStyle=none" /></a>
 
 <br>
 <br>
