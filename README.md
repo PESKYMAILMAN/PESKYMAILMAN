@@ -92,6 +92,12 @@ $${\Huge\color{#c92257}\textbf{}}$$
 <p align="center"><a href="https://mrwrath.straw.page/"><img  alt="Без названия220_20260627151337" src="https://github.com/user-attachments/assets/8bbc00c5-f014-4243-9e57-065d1a2d8bd7" hspace="60" /></a><a href="https://mrwrath.atabook.org/"><img  alt="Без названия220_20260627151322" src="https://github.com/user-attachments/assets/2547f0b8-3060-4e31-8f18-59368def8a6e" hspace="60" /></a></p>
 
 <br>
+
+<p align="center">
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN&label=TV%20Time%20Fans%20%E2%99%A1&labelColor=%23c92257&countColor=%2363beb8&style=plastic&labelStyle=none" /></a>
+</p>
+
+<br>
 <img alt="458ea3e1" src="https://github.com/user-attachments/assets/bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f" />
 
 <br>
