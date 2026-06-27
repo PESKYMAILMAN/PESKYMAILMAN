@@ -52,7 +52,7 @@ $${\Huge\color{#E3FDC0}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{�
 
 
 <details>
-<summary>$${\Huge\color{#c92257}\textbf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 𝗕𝗬𝗜!}}$$</summary>
+<summary>$${\Huge\color{#c92257}\textbf{(𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻) 𝗕𝗬𝗜!}}$$</summary>
 
 $${\Large\color{#c92257}\textbf{}}$$
 
