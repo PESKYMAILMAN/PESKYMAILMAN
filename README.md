@@ -76,6 +76,8 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 📌 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
 
+📌 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune(up to 4th chapter for now); Nullscape; 8:11.
+
 $${\Huge\color{#c92257}\textbf{}}$$
 
 
