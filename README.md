@@ -6,6 +6,7 @@
 
 
 
+
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=892664&center=true&vCenter=true&width=435&lines=I've+been+searching+for+you%2C;EVERY+NIGHT+AND+DAY+TOO%2C;soon+you'll+be+before+me%2C;I'll+give+you+my+soul+free!" alt="Typing SVG" /></a>
@@ -118,7 +119,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 <br>
 
 <div>
-<img alt="tumblr_dd80463cafa788324b6f09834d93675c_56f232e2_540" src="https://github.com/user-attachments/assets/8335c165-3469-4780-b4e3-11045c11baac" />
+<img alt="tumblr_7746996e6d9fe091e792c7f57fec6f11_807f9678_540" src="https://github.com/user-attachments/assets/ce2db1da-dabe-475d-9df8-b6d4a2aa6951" />
 </div>
 
 <br>
