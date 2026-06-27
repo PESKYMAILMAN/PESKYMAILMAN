@@ -72,6 +72,8 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 ⁉️ I can be very distant and busy sometimes. I'm not ignoring anyone on purpose.
 
+📌 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
+
 $${\Huge\color{#c92257}\textbf{}}$$
 
 
