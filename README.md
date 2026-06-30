@@ -85,10 +85,6 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 
 
-
-
-Btw FIRST who whispers me today (06.30) can receive one custom skin from me 👀 My life is very boring as you can see I need to entertain myself somehow!! (and socialize.)
-
 $${\Huge\color{#c92257}\textbf{}}$$
 
 
