@@ -83,6 +83,12 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 📌 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune(up to 4th chapter for now); Nullscape; 8:11.
 
+
+
+
+
+Btw FIRST who whispers me today (06.30) can receive one custom skin from me 👀 My life is very boring as you can see I need to entertain myself somehow!! (and socialize.)
+
 $${\Huge\color{#c92257}\textbf{}}$$
 
 
