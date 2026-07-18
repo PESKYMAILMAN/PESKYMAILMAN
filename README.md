@@ -65,7 +65,7 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 #### ❤️ I do respect other people's boundaries, so it's better if you point out what makes you uncomfortable right away!
 
-#### ❤️ C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk! C+H still encouraged even when I have DNI stated.
+#### ❤️ C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk!
 
 #### ❤️ Tonetags not needed but appreciated! Will I use them or not - depends on your choice.
 
