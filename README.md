@@ -4,9 +4,6 @@
 
 
 
-
-
-
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=892664&center=true&vCenter=true&width=435&lines=I've+been+searching+for+you%2C;EVERY+NIGHT+AND+DAY+TOO%2C;soon+you'll+be+before+me%2C;I'll+give+you+my+soul+free!" alt="Typing SVG" /></a>
@@ -29,8 +26,11 @@
 
 <p align="center">
 <img width="450" height="60" alt="Blinkie green its TV time!" src="https://github.com/user-attachments/assets/2a5fcba7-eb82-472b-a5be-15b9070a169d" />
-</p>
 <br>
+</p>
+<p align="center">
+<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="101" height="57" alt="tumblr_0a33828ba521fb0160f75892f8a12ea2_49b2a85e_250" src="https://github.com/user-attachments/assets/33afa86d-57c6-4f49-b4d9-cf3f98f3431f" /> <img width="101" height="57" alt="tumblr_30aaf3f9554f61c68d1afc78b260d085_70c03dfa_250" src="https://github.com/user-attachments/assets/d6f16a50-f95e-440c-9302-ff0119a8b7e6" /> <img width="101" height="57" alt="tumblr_57d1ff06bc09ef9921e198f0ceb93933_096ab692_250" src="https://github.com/user-attachments/assets/349b0beb-9b47-482c-9e8e-e0cef7193d91" />
+</p>
 
 
 <br>
@@ -40,15 +40,17 @@
 
 <img alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/8790f8a8-79b7-4154-bd32-a2e81fd11bf7" />
 
-</div>
 
-<div align="center">
 <br>
 
 <img alt="e68c6fa7" src="https://github.com/user-attachments/assets/2b26c52a-a78a-4ca0-838c-271d9a5c3326" />
   
 <br>
 <br>
+
+<p align="center">
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN&label=TV%20Time%20Fans%20%E2%99%A1&labelColor=%23c92257&countColor=%2363beb8&style=plastic&labelStyle=none" /></a>
+</p>
 
 $${\Huge\color{#E3FDC0}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\Huge\color{#63beb8}\textbf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$
 
@@ -59,15 +61,34 @@ $${\Huge\color{#E3FDC0}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{�
 
 $${\Large\color{#c92257}\textbf{}}$$
 
-#### ❤️ It can be difficult to start a convo with me since I'm always afk/offtab, buuuut I'm still very social and nice person, trust me!
+#### 📌 If you wanna talk with me it's better to whisper, especially when it's stated offtab in my nickname. Late responses can happen.
 
-#### ❤️ If you wanna talk with me it's better to whisper, especially when it's stated offtab in my nickname. Late responses can happen.
+#### 📌 It can be difficult to start a convo with me since I'm always afk/offtab, buuuut I'm still very social and nice person, trust me!
 
-#### ❤️ I do respect other people's boundaries, so it's better if you point out what makes you uncomfortable right away!
+#### 📌 C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk! Otherwise, I will state DNI in my nickname.
 
-#### ❤️ C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk!
+⁉️ I'm still kinda new to all labeling/system/fictkin and etc stuff, I'm really sorry if I'm gonna make mistakes/mispronoun you because of that!! :(
 
-#### ❤️ Tonetags not needed but appreciated! Will I use them or not - depends on your choice.
+
+
+$${\Huge\color{#c92257}\textbf{}}$$
+
+
+
+</details>
+
+<details>
+<summary>$${\Huge\color{#c92257}\textbf{𝗦𝗼𝗺𝗲 𝗜𝗻𝗳𝗼!}}$$</summary>
+
+$${\Large\color{#c92257}\textbf{}}$$
+
+#### 📍 Usually I dwell in UTDR zone/next to the bakery, but also I can be anywhere else. Even in your walls.
+
+#### 📌 I don't have a SPECIFIC DNI, so just behave appropriately, I will find a common language if I'm interested enough.
+
+❤️ I do respect other people's boundaries, so it's better if you point out what makes you uncomfortable right away!
+
+❤️ Tonetags not needed but appreciated! Will I use them or not - depends on your choice.
 
 ⁉️ My humor isn't for everyone. I can be rude or clingy, but only as a JOKE. Just tell me if it makes you uncomfortable.
 
@@ -77,28 +98,41 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 ⁉️ I can be very distant and busy sometimes. I'm not ignoring anyone on purpose.
 
-⁉️ I'm still kinda new to all labeling/system/fictkin and etc stuff, I'm really sorry if I'm gonna make mistakes/mispronoun you because of that!! :(
+📞 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
 
-📌 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
+📞 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune; Nullscape.
 
-📌 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune; Nullscape; 8:11.
 
 
 
 $${\Huge\color{#c92257}\textbf{}}$$
 
-
 </details>
+
 
 <br>
 
 <p align="center"><a href="https://mrwrath.straw.page/"><img alt="220_20260627151337" src="./220_20260627151337.png" hspace="60" /></a><a href="https://mrwrath.atabook.org/"><img alt="220_20260627151322" src="./220_20260627151322.png" hspace="60" /></a></p>
-
+<br>
 <br>
 
+$${\Huge\color{#FFFFFF}\textbf{Pony Town's Spamton!}}$$
+<br>
+<a href="https://github.com/ponytown-nominations">♡</a>
+</br>
+
+
+
+
 <p align="center">
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN&label=TV%20Time%20Fans%20%E2%99%A1&labelColor=%23c92257&countColor=%2363beb8&style=plastic&labelStyle=none" /></a>
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f">
+  <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f">
+  <img width="387" height="195" alt="Lanino_and_Elnina_overworld" src="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f" style="background-color: transparent !important;" />
+</picture>
 </p>
+
+
 
 <br>
 <img alt="458ea3e1" src="https://github.com/user-attachments/assets/bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f" />
