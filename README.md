@@ -124,13 +124,6 @@ $${\Huge\color{#FFFFFF}\textbf{Pony Town's Spamton!}}$$
 
 
 
-<p align="center">
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f">
-  <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f">
-  <img width="387" height="195" alt="Lanino_and_Elnina_overworld" src="https://github.com/user-attachments/assets/ce912542-926d-433b-a8ab-7b916222310f" style="background-color: transparent !important;" />
-</picture>
-</p>
 
 
 
