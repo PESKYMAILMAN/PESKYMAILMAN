@@ -118,7 +118,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 
 $${\Huge\color{#FFFFFF}\textbf{Pony Town's Spamton!}}$$
 <br>
-<a href="https://github.com/ponytown-nominations">♡</a>
+<a href="https://github.com/ponytown-nominations">♡</a>&nbsp;<a href="https://github.com/title-town">
 </br>
 
 $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
