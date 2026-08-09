@@ -68,7 +68,7 @@ ${\normalsize\color{#b970c4}\textbf{⮑}}$ <a href="https://github.com/javoks">�
 ${\Huge\color{#9dd98f}\textbf{──}}{\Huge\color{#83bbb0}\textbf{──}}{\Huge\color{#9dd98f}\textbf{────}}{\Large\color{#fcdf03}\textbf{ 𝓡𝓲𝓷𝓰 }}{\Huge\color{#83bbb0}\textbf{ ☎ }}{\Large\color{#ff9eca}\textbf{ 𝓡𝓲𝓷𝓰 }}{\Huge\color{#9dd98f}\textbf{────}}{\Huge\color{#83bbb0}\textbf{──}}{\Huge\color{#9dd98f}\textbf{──}}$
 
 
-<img alt="e68c6fa7" src="https://github.com/user-attachments/assets/2b26c52a-a78a-4ca0-838c-271d9a5c3326" />
+<img src="614041581-2b26c52a-a78a-4ca0-838c-271d9a5c3326.gif" alt="Демонстрация" />
 <br>
 
 <details>
@@ -167,8 +167,7 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 
 
 <br>
-<img alt="458ea3e1" src="https://github.com/user-attachments/assets/bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f" />
-
+<img src="614041026-bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f.gif" alt="Демонстрация" />
 <br>
 <br>
 
