@@ -124,7 +124,7 @@ $${\Large\color{#c92257}\textbf{}}$$
 </details>
 
 <details>
-<summary>$${\Huge\color{#63beb8}\textbf{ᛝ}}{\Huge\color{#c92257}\textbf{𝓟𝓛𝓔𝓐𝓢𝓔 𝗜𝗡𝗧 𝗜𝗳 𝗬𝗼𝘂'𝗿𝗲...}}{\Huge\color{#E3FDC0}\textbf{ᛝ}}$$</summary>
+<summary>$${\normalsize\color{#63beb8}\textbf{ᛝ}}{\normalsize\color{#c92257}\textbf{𝓟𝓛𝓔𝓐𝓢𝓔 𝗜𝗡𝗧 𝗜𝗳 𝗬𝗼𝘂'𝗿𝗲...}}{\normalsize\color{#E3FDC0}\textbf{ᛝ}}$$</summary>
 
 $${\Large\color{#c92257}\textbf{}}$$
 
