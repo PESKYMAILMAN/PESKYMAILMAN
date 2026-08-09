@@ -166,6 +166,12 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 
 
 
+
+<img src="Lanino_and_Elnina_overworld.gif" alt="Демонстрация" />
+
+<br>
+
+
 <br>
 <img src="614041026-bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f.gif" alt="Демонстрация" />
 <br>
