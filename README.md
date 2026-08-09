@@ -44,7 +44,7 @@
 <br>
 <br>
 
-<img alt="458ea3e1" src="https://github.com/user-attachments/assets/bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f" />
+<img src="614041026-bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f.gif" alt="Демонстрация" />
   
 <br>
 <br>
