@@ -197,7 +197,7 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 
 <br>
   
-  ![sneo_angel_2](https://github.com/user-attachments/assets/57afaad4-5feb-4468-bdd9-261c51c0090f)
+  <img src="560363226-57afaad4-5feb-4468-bdd9-261c51c0090f.gif" alt="Демонстрация" />
 
 </div>
 
