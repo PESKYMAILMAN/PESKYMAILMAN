@@ -4,6 +4,7 @@
 
 
 
+
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=35&duration=3000&pause=2000&color=892664&center=true&vCenter=true&width=435&lines=I've+been+searching+for+you%2C;EVERY+NIGHT+AND+DAY+TOO%2C;soon+you'll+be+before+me%2C;I'll+give+you+my+soul+free!" alt="Typing SVG" /></a>
@@ -29,7 +30,9 @@
 <br>
 </p>
 
-
+<p align="center">
+<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="101" height="57" alt="tumblr_0a33828ba521fb0160f75892f8a12ea2_49b2a85e_250" src="https://github.com/user-attachments/assets/33afa86d-57c6-4f49-b4d9-cf3f98f3431f" /> <img width="101" height="57" alt="tumblr_30aaf3f9554f61c68d1afc78b260d085_70c03dfa_250" src="https://github.com/user-attachments/assets/d6f16a50-f95e-440c-9302-ff0119a8b7e6" /> <img width="101" height="57" alt="tumblr_57d1ff06bc09ef9921e198f0ceb93933_096ab692_250" src="https://github.com/user-attachments/assets/349b0beb-9b47-482c-9e8e-e0cef7193d91" />
+</p>
 
 <br>
 <br>
@@ -38,10 +41,10 @@
 
 <img alt="tumblr_d740a9cc1e42b29b65de198c69beddc4_5d44e1e7_540" src="https://github.com/user-attachments/assets/8790f8a8-79b7-4154-bd32-a2e81fd11bf7" />
 
-
+<br>
 <br>
 
-<img alt="e68c6fa7" src="https://github.com/user-attachments/assets/2b26c52a-a78a-4ca0-838c-271d9a5c3326" />
+<img alt="458ea3e1" src="https://github.com/user-attachments/assets/bbfdee0d-a2d5-4776-9d6f-15d5cd3e2b0f" />
   
 <br>
 <br>
@@ -50,12 +53,26 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FPESKYMAILMAN%2FPESKYMAILMAN&label=TV%20Time%20Fans%20%E2%99%A1&labelColor=%23c92257&countColor=%2363beb8&style=plastic&labelStyle=none" /></a>
 </p>
 
-$${\Huge\color{#E3FDC0}\textbf{ღ︎⁔︎🖋}}{\Huge\color{#c92257}\textbf{𝗪𝟐𝗜; ᴄ+ʜ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\Huge\color{#63beb8}\textbf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$
 
 
+
+$${\Huge\color{#493982}\textbf{𝗪𝟐𝗜; ᴄ+ʜ+ɪ 𝗘𝗡𝗖; 𝗗𝗡𝗖}}{\Huge\color{#202b33}\textbf{⁽ᵖˡᵉᵃˢᵉ ᵒʳ ⁱ'ˡˡ ᶜʳʸ⁾}}$$
+
+
+${\normalsize\color{#b970c4}\textbf{❝}}{\normalsize\color{#777eab}\textbf{𝒪𝒽, 𝐼𝒻 𝒪𝓃𝓁𝓎 𝒴𝑜𝓊 𝒲𝑒𝓇𝑒 }}{\normalsize\color{#c43777}\textbf{𝓜𝓲𝓷𝓮.}}{\normalsize\color{#b970c4}\textbf{❞}}$
+
+${\normalsize\color{#b970c4}\textbf{⮑}}$ <a href="https://github.com/javoks">❤︎‬</a>‬ ${\normalsize\color{#b970c4}\textbf{⮐}}$
+
+<br>
+
+${\Huge\color{#9dd98f}\textbf{──}}{\Huge\color{#83bbb0}\textbf{──}}{\Huge\color{#9dd98f}\textbf{────}}{\Large\color{#fcdf03}\textbf{ 𝓡𝓲𝓷𝓰 }}{\Huge\color{#83bbb0}\textbf{ ☎ }}{\Large\color{#ff9eca}\textbf{ 𝓡𝓲𝓷𝓰 }}{\Huge\color{#9dd98f}\textbf{────}}{\Huge\color{#83bbb0}\textbf{──}}{\Huge\color{#9dd98f}\textbf{──}}$
+
+
+<img alt="e68c6fa7" src="https://github.com/user-attachments/assets/2b26c52a-a78a-4ca0-838c-271d9a5c3326" />
+<br>
 
 <details>
-<summary>$${\Huge\color{#c92257}\textbf{(𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻) 𝗕𝗬𝗜!}}$$</summary>
+<summary>$${\Huge\color{#63beb8}\textbf{ᛝ}}{\Huge\color{#c92257}\textbf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻/𝗚𝗲𝗻𝗲𝗿𝗮𝗹 𝗕𝗬𝗜!}}{\Huge\color{#E3FDC0}\textbf{ᛝ}}$$</summary>
 
 $${\Large\color{#c92257}\textbf{}}$$
 
@@ -63,7 +80,7 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 #### 📌 It can be difficult to start a convo with me since I'm always afk/offtab, buuuut I'm still very social and nice person, trust me!
 
-#### 📌 C+H(+INT) encouraged a lot, even if I'm already sitting with someone, idm anyone around me while I'm afk! Otherwise, I will state DNI in my nickname.
+#### 📌 C+H(+INT) encouraged a lot, even if I'm already sitting with someone, Idm anyone around me while I'm afk! Otherwise, I will state DNI in my nickname.
 
 ⁉️ I'm still kinda new to all labeling/system/fictkin and etc stuff, I'm really sorry if I'm gonna make mistakes/mispronoun you because of that!! :(
 
@@ -76,7 +93,7 @@ $${\Huge\color{#c92257}\textbf{}}$$
 </details>
 
 <details>
-<summary>$${\Huge\color{#c92257}\textbf{𝗦𝗼𝗺𝗲 𝗜𝗻𝗳𝗼!}}$$</summary>
+<summary>$${\Huge\color{#63beb8}\textbf{ᛝ}}{\Huge\color{#c92257}\textbf{𝗦𝗼𝗺𝗲 𝗜𝗻𝗳𝗼 𝗔𝗯𝗼𝘂𝘁 𝗠𝗲!}}{\Huge\color{#E3FDC0}\textbf{ᛝ}}$$</summary>
 
 $${\Large\color{#c92257}\textbf{}}$$
 
@@ -96,14 +113,34 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 ⁉️ I can be very distant and busy sometimes. I'm not ignoring anyone on purpose.
 
+⁉️ Significantly younger or older - I won't give a damn if you're a normal person.
+
 📞 I care for my friends a lot. I will kill for every single of them. MARK MY WORDS!! /hj
 
 📞 Most of fandoms I'm in are stated in sp, but hf ones are: Guts And Blackpowder; Phighting!; Deltarune; Nullscape.
 
+📞 I'm multishipper. And also platonic/familial relationships enjoyer. Basically I like anything that doesn't cross the line!
 
+</details>
 
+<details>
+<summary>$${\Huge\color{#63beb8}\textbf{ᛝ}}{\Huge\color{#c92257}\textbf{𝓟𝓛𝓔𝓐𝓢𝓔 𝗜𝗡𝗧 𝗜𝗳 𝗬𝗼𝘂'𝗿𝗲...}}{\Huge\color{#E3FDC0}\textbf{ᛝ}}$$</summary>
 
-$${\Huge\color{#c92257}\textbf{}}$$
+$${\Large\color{#c92257}\textbf{}}$$
+
+🌹 G&B ocs enthusiast or in G&B fandom in general!
+
+🌹 Ocs enjoyer in any way possible!
+
+🌹 Spamtenna enjoyer or in Deltarune fandom in general!
+
+🌹 Medhammer enjoyer or in Phighting fandom in general!
+
+🌹 Nullscape enjoyer!
+
+🌹 Chaotic person (just like me)!
+
+🌹 Yapper!
 
 </details>
 
@@ -125,8 +162,7 @@ $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
 </br>
 
 
-
-
+${\Huge\color{#202b33}\textbf{Thank you!}}$
 
 
 
@@ -136,10 +172,12 @@ $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
 <br>
 <br>
 
-<img width="99" height="57" alt="Stamp videogames Deltarune Im miking out" src="https://github.com/user-attachments/assets/9e1f07c0-e754-45fd-b6ea-3c19c6e4faa2" /> <img width="101" height="57" alt="tumblr_0a33828ba521fb0160f75892f8a12ea2_49b2a85e_250" src="https://github.com/user-attachments/assets/33afa86d-57c6-4f49-b4d9-cf3f98f3431f" /> <img width="101" height="57" alt="tumblr_30aaf3f9554f61c68d1afc78b260d085_70c03dfa_250" src="https://github.com/user-attachments/assets/d6f16a50-f95e-440c-9302-ff0119a8b7e6" /> <img width="101" height="57" alt="tumblr_57d1ff06bc09ef9921e198f0ceb93933_096ab692_250" src="https://github.com/user-attachments/assets/349b0beb-9b47-482c-9e8e-e0cef7193d91" />
 
 
-
+<div>
+<img alt="tumblr_7746996e6d9fe091e792c7f57fec6f11_807f9678_540" src="https://github.com/user-attachments/assets/ce2db1da-dabe-475d-9df8-b6d4a2aa6951" />
+</div>
+<br>
 
 <img width="300" height="40" alt="0255-glowinghearts" src="https://github.com/user-attachments/assets/e6e403ca-c49c-472c-a3ef-8d3d2dc247c0" /> <img width="300" height="40" alt="a39" src="https://github.com/user-attachments/assets/ef4d86a9-909a-4c3d-925f-fba9d36c1835" /> <img width="300" height="40" alt="0254-strawberrygradient" src="https://github.com/user-attachments/assets/ade5c3cf-6f9c-42cb-ae38-4a734937dc3e" /> <img width="300" height="40" alt="0229-roses" src="https://github.com/user-attachments/assets/4ea530c0-d3d0-4ffb-baf4-94c58c701c1c" />
 
@@ -150,9 +188,7 @@ $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
 <br>
 <br>
 
-<div>
-<img alt="tumblr_7746996e6d9fe091e792c7f57fec6f11_807f9678_540" src="https://github.com/user-attachments/assets/ce2db1da-dabe-475d-9df8-b6d4a2aa6951" />
-</div>
+
 
 <br>
   
@@ -182,3 +218,4 @@ $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
 <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=League+Spartan&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=You+Will+Be+Always+Loved.;Stay+Safe.;Take+Care+Of+Yourself.;No+One+Is+Perfect.;And+That+Is+Not+A+Bad+Thing." alt="Typing SVG" /></a>
 </div>
+
