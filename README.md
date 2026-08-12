@@ -168,7 +168,7 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 
 
 <img src="Lanino_and_Elnina_overworld.gif" alt="Демонстрация" />
-
+<br>
 <br>
 <img width="150" height="50" alt="3461812ge702797h3" src="https://github.com/user-attachments/assets/4970ed3d-d8fa-4ef0-8fde-b55a8ecc994a" />
 
