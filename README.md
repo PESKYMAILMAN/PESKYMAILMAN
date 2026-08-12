@@ -193,7 +193,7 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 <br>
 <br>
 
-${\normalsizecolor{#202b33}\textbf{Gonna remake allat one day}}$
+${\normalsize\color{#202b33}\textbf{Gonna remake allat one day}}$
 
 
 <br>
