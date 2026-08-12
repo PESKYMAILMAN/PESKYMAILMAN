@@ -193,6 +193,7 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 <br>
 <br>
 
+${\normalsizecolor{#202b33}\textbf{Gonna remake allat one day}}$
 
 
 <br>
@@ -217,10 +218,3 @@ ${\Huge\color{#202b33}\textbf{Thank you!}}$
 <br>
 
 ---
-
-<div align="center">
-<img width="80" height="80" alt="tumblr_9a6db8f1e260319a699b4f9967734a3b_eb485f6a_250" src="https://github.com/user-attachments/assets/60fc7e4b-a14e-42cd-b5dd-937819c6b7dc" />
-<br>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=League+Spartan&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=You+Will+Be+Always+Loved.;Stay+Safe.;Take+Care+Of+Yourself.;No+One+Is+Perfect.;And+That+Is+Not+A+Bad+Thing." alt="Typing SVG" /></a>
-</div>
-
