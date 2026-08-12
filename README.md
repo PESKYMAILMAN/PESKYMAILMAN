@@ -212,7 +212,6 @@ ${\normalsize\color{#202b33}\textbf{Gonna remake allat one day}}$
 
 
 <br>
-<br>
-<br>
+
 
 ---
