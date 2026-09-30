@@ -153,12 +153,17 @@ $${\Large\color{#c92257}\textbf{}}$$
 
 $${\Huge\color{#FFFFFF}\textbf{Pony Town's Spamton!}}$$
 <br>
-<a href="https://github.com/ponytown-nominations">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/title-town">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/cosplaytown">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/casinotown">♡</a>
+<a href="https://github.com/ponytown-nominations">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/title-town">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/cosplaytown">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/casinotown">♡</a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/daggerstruckmage">♡</a>
 </br>
 
 $${\Large\color{#FFFFFF}\textbf{Num.1 Spamtenna shipper!}}$$
 <br>
 <a href="https://github.com/ship-town">♡</a>
+</br>
+
+$${\Large\color{#FFFFFF}\textbf{Num.1 Tenna Fan!}}$$
+<br>
+<a href="https://github.com/daggerstruckmage">♡</a>
 </br>
 
 $${\Large\color{#4b6b82}\textbf{Pony Town's Ban Hammer!}}$$
